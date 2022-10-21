@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Marcus Ray
-- 👀 I’m interested in Front End Design
+- ヘ( ^o^)ノ＼(^_^ )
 
 <!---
 itsnotstarburst/itsnotstarburst is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
